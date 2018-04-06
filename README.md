@@ -1,8 +1,8 @@
 ### Работа с Google Ngram Viewer
 ## Сперва частотные продолжения фразы Due to. 
-![](https://sun1-4.userapi.com/c840636/v840636110/7000d/R1JN0v33pos.jpg)
+# ![](https://sun1-4.userapi.com/c840636/v840636110/7000d/R1JN0v33pos.jpg)
 ## Затем слово, которое может относиться к разным частям речи. 
-# ! [] (https://sun9-4.userapi.com/c840636/v840636110/70017/MZXemWDDkqs.jpg)
+# ![](https://sun9-4.userapi.com/c840636/v840636110/70017/MZXemWDDkqs.jpg)
 ## И два синонима: один характерный для британского английского, другой - для американского.
 # ![](https://sun9-3.userapi.com/c840636/v840636110/70003/iv_lqJiJuzU.jpg)
 
