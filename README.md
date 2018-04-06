@@ -13,3 +13,4 @@
 ### ![](https://sun9-9.userapi.com/c840537/v840537258/6f806/rFGjJwfs7q4.jpg)
 ## Синонимичные глаголы.
 ### ![](https://sun1-2.userapi.com/c840537/v840537258/6f81d/mR18MinJK38.jpg)
+Как показывает график, с глаголом walk употребляются дополнения: distance, stick, mile etc.; c wander - eye, thought etc.; c обоими road, round, hand... 
